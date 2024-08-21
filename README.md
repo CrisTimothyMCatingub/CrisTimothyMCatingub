@@ -2,8 +2,8 @@
 - 👀 I’m interested in VALORANT
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me FACEBOOK
-- 😄 Pronouns: HE'HIM
+- 📫 How to reach me D:<
+- 😄 Pronouns: HE HIM 
 - ⚡ Fun fact: I AM A VALORANT RANKED DEMON >:D
 
 <!---
